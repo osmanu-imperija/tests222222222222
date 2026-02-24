@@ -1,2 +1,2 @@
-# tests2222222222221
+# TESTS casino
 tests kazino 777
